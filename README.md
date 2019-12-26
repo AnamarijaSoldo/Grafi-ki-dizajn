@@ -1,1 +1,1 @@
-# Grafi-ki-dizajn
+# Graficki-dizajn
